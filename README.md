@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/samratrai11](https://github.com/samratrai11)
 
-- 📫 How to reach me **samratrai1995@gmail.com**
+- 📫 How to reach me **samratrai738@gmail.com**
 
 - 📄 Know about my experiences [https://1drv.ms/b/s!AmuxgrdANHrigRtVD-mYbojZpyMT?e=0bKLgc](https://1drv.ms/b/s!AmuxgrdANHrigRtVD-mYbojZpyMT?e=0bKLgc)
 
