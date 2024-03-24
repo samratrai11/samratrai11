@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **samratrai738@gmail.com**
 
-- 📄 Know about my experiences [https://1drv.ms/b/s!AmuxgrdANHrigRtVD-mYbojZpyMT?e=0bKLgc](https://1drv.ms/b/s!AmuxgrdANHrigRtVD-mYbojZpyMT?e=0bKLgc)
+- 📄 Know about my experiences [[https://1drv.ms/b/s!AmuxgrdANHrigRtVD-mYbojZpyMT?e=0bKLgc](https://drive.google.com/file/d/1c8wTGWXwAmJa5ZLqf1e-zmqRcbcOOmT6/view?usp=share_link)]([https://1drv.ms/b/s!AmuxgrdANHrigRtVD-mYbojZpyMT?e=0bKLgc](https://drive.google.com/file/d/1c8wTGWXwAmJa5ZLqf1e-zmqRcbcOOmT6/view?usp=share_link))
 
 - ⚡ Fun fact **Honey Never Spoils: Archaeologists have found pots of honey in ancient Egyptian tombs that are over 3,000 years old and still perfectly edible. Honey's low water content and acidic pH create an inhospitable environment for bacteria and microorganisms.**
 
